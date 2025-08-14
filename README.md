@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate specifically on innovative MedTech devices and robotic projects in general as well
 - 📫 How to reach me --> My email is: caleb.nazareth@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I can throw you
+- ⚡ Fun fact: I'm a Youtuber and can throw you
 
 <!---
 CalebN42/CalebN42 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
